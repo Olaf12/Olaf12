@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning Scripting, and meeting house wifes
 - 👯 I’m looking to collaborate on your wife
 - 🤔 I’m looking for help with your wife
-- 💬 Ask me about your wife
+- 💬 Ask me about your wife or mom
 - 📫 How to reach me: Ask your wife :D
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Your wife
