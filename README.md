@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on your wife
 - 🤔 I’m looking for help with your wife
 - 💬 Ask me about your wife
-- 📫 How to reach me: Ask your wife
+- 📫 How to reach me: Ask your wife :D
 - 😄 Pronouns: ...
 - ⚡ Fun fact: Your wife
 -->
